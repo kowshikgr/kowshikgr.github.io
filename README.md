@@ -1,3 +1,0 @@
-# kowshikgr.github.io
-
-Profile
